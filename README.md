@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on data analysis topics and project
 - 📫 How to reach me 📧 @lawalmiran92@gmail.com
 - 😄 Pronouns: she
-- ⚡ Fun fact: ... 
+- ⚡ Fun fact: ...  love reading, writing poets at times too.
 
 <!---
 Diaryofmimis/Diaryofmimis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
